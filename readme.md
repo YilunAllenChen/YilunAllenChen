@@ -1,1 +1,1 @@
-# [Personal Page](https://yilunallenchen.github.io/YilunAllenChen/)
+# [Personal Page](https://yilunallenchen.github.io/)
